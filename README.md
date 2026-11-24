@@ -1,0 +1,1 @@
+linkd o figma: https://www.figma.com/design/QqjCvNQwHyTE2qauvL8jyI/Dashboard--Community-?node-id=0-1&t=Y4LSJmyb27TFT9S3-1
